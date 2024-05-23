@@ -1,0 +1,1 @@
+![fumo](https://preview.redd.it/would-you-eat-inu-sakuyas-cooking-v0-9op1ldqqwz1d1.jpeg?width=1080&crop=smart&auto=webp&s=e977ed3cdf6ee8d25826084f9d09c8685f53352c)
